@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ragni18
 - 👀 I’m interested in psychology
-- 🌱 I’m currently learning in BA
+- 🌱 I’m currently pursuing in BA
 - 💞️ I’m looking to collaborate on webinars for psychology students
 - 📫 How to reach me ~ ragnilamba18@gmail.com
 
